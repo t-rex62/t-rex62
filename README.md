@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @t-rex62
-- 👀 I’m interested in many things lol
+- 👀 I’m interested in astrology hehe
 - 🌱 I’m currently learning front-end coding
 - 💞️ I’m looking to collaborate on something(?)
 - 📫 How to reach me... don't
