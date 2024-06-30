@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @t-rex62
+- 👋 Hi, I’m Regina (or Regi... or Re... or Rex...)
 - 👀 I’m interested in astrology hehe
-- 🌱 I’m currently learning front-end coding
+- 🌱 I’m currently learning front-end coding (and it's a bit confusing)
 - 💞️ I’m looking to collaborate on something(?)
 - 📫 How to reach me... don't
 - 😄 Pronouns: she/her
